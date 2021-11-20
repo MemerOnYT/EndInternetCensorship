@@ -6,4 +6,6 @@ Well, Mine Does And I Decided To Do Something About It!<br>
 This Site Can Easily Be Moved And Stays Unblocked,<br>
 While Receiving New Updates Now & Then!
 
+<hr>
+
 <i><b>#EndInternetCensorship<b><i>
